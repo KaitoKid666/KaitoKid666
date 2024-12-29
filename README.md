@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @KaitoKid666
+- 👀 I’m interested in Cryptocurrency 
+- 🌱 I’m currently learning AI, Blockchain, and programming
+- 💞️ I’m looking to collaborate on technology 
+- 📫 How to reach me: Follow me!
+- 😄 Pronouns: Him
+- ⚡ Fun fact: I like women whose initials start with "N"
